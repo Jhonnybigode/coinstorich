@@ -1,0 +1,2 @@
+# coinstorich
+minerar e enriquecer
